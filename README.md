@@ -1,2 +1,1 @@
-# pohoda-shoptet
-
+https://blog.robotproeshop.eu/2018/03/03/shoptet-pohoda-a-skladova-zasoba/
