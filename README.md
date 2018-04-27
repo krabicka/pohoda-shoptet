@@ -1,1 +1,1 @@
-https://blog.robotproeshop.eu/2018/03/03/shoptet-pohoda-a-skladova-zasoba/
+https://blog.robotproeshop.cz/shoptet-pohoda-a-skladova-zasoba/
